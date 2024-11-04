@@ -13,9 +13,11 @@ Key Steps
 Findings
 
 Cluster 1: Comprised of 60% women, presenting an ideal segment for personalized campaigns.
+
 Cluster 2: Indicated an opportunity for sales-driven events, targeting cost-conscious customers.
 
 Key Outcomes
 
 Generated 3 actionable insights to support customer retention and acquisition.
+
 Provided clear segmentation to enable data-driven, targeted marketing efforts.
